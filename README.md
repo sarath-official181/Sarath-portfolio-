@@ -289,7 +289,7 @@ finance, marketing, leadership and organizational excellence.
 Currently pursuing MBA in Finance and Marketing at
 Hindustan Institute of Technology and Science.
 Completed Bachelor of Commerce (B.Com – General) at 
-Hindustan arts and science .
+Hindustan arts and science.
 
 Experienced as a Supervisor at Softel Company,
 developing leadership, communication, team management
